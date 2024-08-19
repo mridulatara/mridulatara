@@ -4,7 +4,7 @@
 
 🎓 Currently pursuing B.Tech CSB 3rd year  
 ✨ Enthusiastic and creative learner  
-🌱 Always seeking new knowledge and challenges
+🌱 Curious to learn new things
 
 🔗 &nbsp;**Connect with me**
 
